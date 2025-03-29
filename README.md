@@ -1,22 +1,19 @@
-🏏 Watch IPL 2025 Live!
+# 🏏 Watch IPL 2025 Live!
 
-✅ Watch IPL 2025 for Free
+✅ **Watch IPL 2025 for Free**  
 📺 Enjoy all the live matches without any subscription!
 
-🔗 Join Now: Click Here 👈
-
+🔗 **Join Now:** [Click Here](https://t.me/+xxWB98hXiToyZmQ1) 👈
 
 ---
 
-🎉 Why Join?
+### 🎉 Why Join?
+✔️ Free access to all IPL 2025 matches  
+✔️ HD Streaming without lag  
+✔️ Instant match updates  
+✔️ No hidden charges  
 
-✔️ Free access to all IPL 2025 matches
-✔️ HD Streaming without lag
-✔️ Instant match updates
-✔️ No hidden charges
-
-🛑 Don't miss a single match! Join now and enjoy the thrill of IPL 2025! 🏆
-
+🛑 **Don't miss a single match!** Join now and enjoy the thrill of IPL 2025! 🏆
 
 ---
 
